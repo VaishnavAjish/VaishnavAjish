@@ -1,5 +1,5 @@
 # 💫 About Me:
-🔭 I’m currently working on Intelligent Trade Automation.<br>👯 I’m looking to collaborate on AI generative.<br>🌱 I’m currently having fun with AI World.<br>📧 How to reach me: vaishnavajish23@gmail.com**<br>💬 Ask me about technologies, web development, and AI World.<br>😃 pronounce : He/Him
+🔭 I’m currently working on Intelligent Trade Automation.<br>👯 I’m looking to collaborate on AI generative.<br>🌱 I’m currently having fun with AI World.<br>📧 How to reach me: vaishnavajish23@gmail.com**<br>💬 Ask me about technologies,cyber scurity  ,web development, and AI World.<br>😃 pronounce : He/Him
 
 
 ## 🌐 Socials:
